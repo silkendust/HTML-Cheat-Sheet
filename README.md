@@ -1,0 +1,1 @@
+This is a Challenge Project from Code Academy. I am now 2 weeks into coding and enjoying it! Love the challenge of creating something from nothing and styling it out as well! Hope you enjoy! Feel free to leave feedback, comments, suggestions, etc.!
